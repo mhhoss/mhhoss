@@ -2,8 +2,6 @@
 
 I like building simple, purposeful things around language and software — ideas that can grow into something real and useful.
 
----
-
 📫 Let's Connect  
 Always open to interesting conversations, collaboration, or just saying hi.
 
